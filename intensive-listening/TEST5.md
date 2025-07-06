@@ -1,0 +1,89 @@
+# TEST5
+
+## 511
+
+Good afternoon. Dream time travel.
+
+How can I help you?
+
+Oh, hello. I am interested in the holidays you offer along the coast near here.
+
+Yes,we operate several tours up the coast, where in particular did you want to go?
+
+Well, i like the sound of the holiday that mentioned whales.
+
+Was  it ,emmm, whale watching
+
+oh that our whale watch  experience
+
+it’s very popular, and it is based in a lovely little town with nice beaches
+
+oh right, and how long does it last
+
+it is two days, and that includes four hours’ travel time each way form here
+
+good i don’t want to be away any longer than that
+
+so is that by coach?
+
+actually, it is by minibus.
+
+we like to keep those tours small and personal, so we don’t take a whole coachload of people
+
+in fact we only take up to 15 people on this tour,although we do run it with just 12 or 13
+
+oh right
+
+so did you run these tours often
+
+well it depends on the time of the year
+
+of course in peak times like the summer holidays we do them every weekend, but at the moment, it is usually once a month at most 
+
+and when is the next one going 
+
+emmm let me see
+
+there is one in three weeks’ time which is apirl the 18,and then we don’t have another one until june second
+
+all right and the apirl is a good time to go?
+
+pretty good,though the really good time is later in the year 
+
+i have to though that the whale sighting is only one of the many things offered
+
+really?
+
+yes
+
+the hotel itself where you stay is great facilities
+
+it is called the pallisades
+
+the paris what?
+
+no it is actually the Pallisades,p-a-double l-i-s-a-d-e-s
+
+it is right on the main beach there
+
+oh i see
+
+all of the rooms have nice views, and food is really good there too
+
+oh right
+
+and what about the other things?
+
+you know that are included in the price
+
+oh there are lots of things
+
+if you don’t want do the whale watch cruise,your guide will take anyone who is interested either on a bushwalk, through the national park near the hotel,and there’s no extra charge for that,or on a fishing trip
+
+that is an extra 12 dollars i think
+
+and there’s also a reptile park in town, that costs small more or less the same.
+
+no i think i’d prefer whales to snakes 
+
+yes and if you just want to relax, you are free to sit by the hotel pool or go down the beach
