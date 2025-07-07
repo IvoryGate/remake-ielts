@@ -87,3 +87,27 @@ and there’s also a reptile park in town, that costs small more or less the sam
 no i think i’d prefer whales to snakes 
 
 yes and if you just want to relax, you are free to sit by the hotel pool or go down the beach
+
+oh,they also have tennis courts at the hotel, but you have to pay for those by the hour.
+
+but there are table tennis tables downstairs and there are part of the accomodation package.  
+
+just speak to your guide
+
+wow that sounds good
+
+so how mush is the basic tour price
+
+at this time of the year, it’s usually around 300 dollars. but let me check
+
+oh,it’s actually 280 dollars
+
+and the next tour, are there any places on that one
+
+how many people is it for?
+
+there are two of us
+
+yes that should be fine
+
+can i just mention that we require all bookings should be made at least 14 days before you travel to avoid cancellations of tours.
