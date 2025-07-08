@@ -111,3 +111,48 @@ there are two of us
 yes that should be fine
 
 can i just mention that we require all bookings should be made at least 14 days before you travel to avoid cancellations of tours.
+
+And if you cancel within 7 days of departure, you will have to pay 15% of your total booking.
+
+OK
+
+And you also need to pay a 20% deposite at the time of booking.
+
+Can I pay that by credit card?
+
+yes you can
+
+All right, what i will do is i’ll talk to my partner get back to you
+
+fine
+
+so i’ll make a provisional booking shall i
+
+two for the whale watch experience
+
+let me issue you with a customer reference number for when you call back
+
+do you have a pen
+
+yes
+
+ok it’s 39745T
+
+that’s t for tango
+
+when you call back ask to speak to the tour manager, that’s me, tracy	
+
+fine i will
+
+## 512
+
+hello and welcome to today’s buyer beware programme, where we give you some tips on how to spend your money wisely.
+
+no in today show we are looking a bed for childern and babies
+
+let’s start by looking at baby cots that’s for children of up to 3 years old
+
+we tested three different cots all in the budget price range and as usual, we will feature the good points, the problems and our verdict
+
+the first cot we looked at was by baby safe ,and it had several good points to recommend it.
+
