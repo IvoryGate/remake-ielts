@@ -156,3 +156,68 @@ we tested three different cots all in the budget price range and as usual, we wi
 
 the first cot we looked at was by baby safe ,and it had several good points to recommend it.
 
+our testers like the fact that it have four wheels, so it was easy to move around.
+
+the only slight problem with this cot was that it has no brakes, but they didn’t think that mattered too much.
+
+at first,they were a bit concerned about the side bar, because they felt babies could trap their fingers in it. but our tester felt this was unlikely to happened. so they have given this one a verdict of ‘satisfactory’
+
+ The next cot was by Choice Cots, and this time our testers were pleased to find a cot which is simple to put together - unlike others we looked at.
+
+On the minus side, our testers did not like the fact that the side cot did not drop down,making it difficult to put up newborn babies.
+
+however, the real problem with this cot was the space between the bars,our testers found they were too wide and a baby could easily trap his head.
+
+we felt this was a real safety hazard, so we’ve labelled this one dangerous, i’m afriad
+
+and finally better news for the mothers’ choice cot
+
+this cot was slightly different in that, although the side bar didn’t drop down the base could be rised or lowered into two different positions making it safe as well as convenient.
+
+the negative from this one was quiet miner, the only leagal everyone has reflected that it has no wheel and the only other probem one was find, the picture on it was simplely stuck on. so it could easy become detached 
+
+The makers have now promised to discontinue this practice.
+
+and this cot will be safe in anyway, we have made make the mother choice our best buy.
+
+ Congradulations! Mother’s choice
+
+So what features should you look for in a baby’s cot
+
+well obviously safety is the very important fact as well as comfort and convenience
+
+we recommend that if you are buying a cot, do make sure that any metal present is not rusted or bent in any way.
+
+you should ensure your cot has only rounded or smooth edging without any sharp edges, this is especially important for wooden cots
+
+## 513
+
+excuse me, i was told to come here for advice about management deploma courses 
+
+you’ve certainly come to the right place
+
+hi my name is monica
+
+nice to meet you
+
+my name is andrew andrew harris
+
+so andrew, have you seen our deploma course prospectus yet
+
+yes i’ve already looked at it.
+
+in fact, i thought the information on course content was really useful, but i’m afraid that i’m a bit confused by all the different ways you can do the course, full-time intensive, part-time and so on.
+
+well let’s see if i can help
+
+i think each course type has its advantages and disadvantages,so it really depends on you. your own study habits, and your financial circumstances of cause.
+
+are you working at the moment
+
+yes
+
+i’ve been working in the administration section of local hosiptal for the last three years.
+
+and before that i worked in the office of a computer engineering campany for 2 years
+
+so i’ve got about 5 years of relevant working experience
