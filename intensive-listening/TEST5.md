@@ -221,3 +221,60 @@ i’ve been working in the administration section of local hosiptal for the last
 and before that i worked in the office of a computer engineering campany for 2 years
 
 so i’ve got about 5 years of relevant working experience
+
+and  what i’am hoping to focus on is personnel management
+
+i see
+
+and are you plan to leave your current job to study, or are you just thinking about just taking a year off
+
+i want to know what my options are really
+
+i don’t want to quit my job anything, and my employers are keen for me to get some more qualifications, but obviously, it would be better if i can do a course without taking too much time away from work  
+
+right, so you don’t want to do the full-time course then 
+
+no no really
+
+it is also a question of finances
+
+you see my office have agreed to pay the cost of the course itself, but i would have to take unpaid leave if i want to study full-time and, well, i don’t think i could afford to support myself with no salary for a whole year.
+
+ok
+
+well you have two other posibilities, you could ethier do the part-time course that will be over two years and you wouldn’t have to take any time off work,  or you could do what we call a ‘modular’ course.
+
+you can do that in18 months if you wanted or longer, it is quite flexible and it would be up to you.
+
+Mmmm
+
+so what does the part-time course involve?
+
+for that you would join an evening class, and have a lecture twice a week
+
+then you would have to attend a seminar or discussion workshop one weekend a month
+
+what kind of coursework would i have to do
+
+well it’s a mixture
+
+you’d be expected to write an essay each month, which counts towards your final assessment.
+
+you have a case to do by the end of the course, which might involve doing a survey or something like that, and also you need to hand in a short report every four weeks.
+
+so that’s quite a lot work then, on top of working every day
+
+it sounds like a lot of studing, and really tiring
+
+yeah, you certainly wouldn’t have much free time.
+
+what about the  modular course?
+
+what would i have to do for that.
+
+that’s where you get the oppotunity to study full-time for short periods
+
+that way cover a lot of course work and attend seminars during the day.
+
+and each modular lasts for one term, say, about 12 weeks at a time.
+
